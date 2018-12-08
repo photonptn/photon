@@ -101,4 +101,6 @@ In-keeping with TRON's focus on the entertainment industry, it is envisaged that
 
 The Sun will ensure a bright future for the photon and in turn provide each quanta with light in their life, thereby fulfilling the aim of the photon project.
 
+In addition to this we aim to develop an online publication - graphic novel - where Photons are used as a currency to steer the development of the publication.
+
 A quanta is YOU the investor. If you haven't got that already then I urge you to re-read this "Light" paper.
