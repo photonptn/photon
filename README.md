@@ -19,7 +19,7 @@ Twitter: @PhotonPTN
 
 Telegram: @PhotonPTN
 
-Telegram Channel: https://t.me/photontoken
+Telegram Group: https://t.me/joinchat/KNzY5BUxNh5MFnOd9j5SCw
 
 1.3 Photon TRC10 Token
 
