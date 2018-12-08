@@ -1,7 +1,7 @@
 # photon
 Bringing light to where there is darkness - one photon at a time.
 
-The photon "light" paper is published here and you will see it is simple, transparent, and above-all not promising to take over the world. It is realistic but the creator is incredibly excited about the potential of the photon. The aim of the "light" paper is to share that excitment with you, the investor (quanta).
+The photon "light" paper is published here and you will see it is simple, transparent, and above-all not promising to take over the world. It is realistic but the creator is incredibly excited about the potential of the photon. The aim of the "light" paper is to share that excitement with you, the investor (quanta).
 
 "Light" paper
 
